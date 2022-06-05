@@ -3,7 +3,7 @@
 Olá! Bem vindo ao meu livro de receitas :wave:
 
 - Batata Gratinada
-- Pavê
+- Pavê de Chocolate
 
 
 
